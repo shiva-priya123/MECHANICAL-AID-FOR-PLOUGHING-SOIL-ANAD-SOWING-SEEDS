@@ -1,0 +1,2 @@
+# MECHANICAL-AID-FOR-PLOUGHING-SOIL-ANAD-SOWING-SEEDS
+The user can easily plough the soil and sow the cotton seed without any physical effort .Also reduces the time consumed and number of the labourer  required.In a situation , that we cant afford farmers this machine makes the work happen without stop in middle.One machine has a capacity of covering 2-3 acres of land if once started. So therefore, this makes the work easier.The budget Is friendly for the farmers economy.product is eco-friendly in nature and  doesn't harm the user.
